@@ -7,7 +7,7 @@
 　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　　![](https://komarev.com/ghpvc/?username=1xdoee&color=334116&style=plastic&label=cuties)
 
 
-　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@kekpy) - [strawpage(byi)](https://homicidalporkchops.straw.page/) - [carrd](https://1xdoe-my-love.carrd.co/) - [rentry(wip)](https://rentry.co/voxxyval)
+　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@EXR-P) - [strawpage(byi)](https://homicidalporkchops.straw.page/) - [carrd](https://1xdoee.carrd.co/) - [rentry(wip)](https://rentry.co/voxxyval)
 
 
 ╰ ・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ▄︻デ══━一 ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
