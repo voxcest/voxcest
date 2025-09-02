@@ -6,7 +6,7 @@
 　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　　![](https://komarev.com/ghpvc/?username=1xdoee&color=334116&style=plastic&label=cuties)
 
 
-　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@EXR-P) - [strawpage(read please)](https://homicidalporkchops.straw.page/) - [atabook](https://1xdoe.atabook.org/) - [pt info](https://rentry.co/suicide_parade)
+　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@EXR-P) - [strawpage](https://homicidalporkchops.straw.page/) - [atabook](https://1xdoe.atabook.org/) - [pt info](https://rentry.co/suicide_parade)
 
 
 ╰ ・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ▄︻デ══━一 ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
