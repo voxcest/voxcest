@@ -9,7 +9,7 @@
 　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@EXR-P) - [strawpage](https://1xdoee.straw.page/) - [atabook](https://1xdoe.atabook.org/) - [pt info](https://rentry.co/suicide_parade)
 
      
-　　　　 ​　　　　　　　　　　 ​　　my alt accounts.. @veeswife @guitarapple @algebralian @errormare @twothousandsevenhundredsixtythree
+　　　　 ​　　　　　　　　　　 ​　　my alt accounts.. @veeswife @guitarapple @algebralian @errormare 　　　　　　　　　　　　　　　　　　　　　@twothousandsevenhundredsixtythree
 
 ╰ ・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ▄︻デ══━一 ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
 
