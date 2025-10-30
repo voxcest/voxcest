@@ -14,5 +14,4 @@
 ╰ ・┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ▄︻デ══━一 ┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄┄ ɞ˚
 
 
-![x](https://static.wikia.nocookie.net/hazbinhotel/images/9/90/The_Vees_in_the_pilot_Ani.gif/revision/latest?cb=20240420200743)
-
+![x](https://static.wikia.nocookie.net/hazbinhotel/images/4/44/HHs2e1_Vox_gushing_over_his_shark.png/revision/latest/scale-to-width-down/1000?cb=20251030113832)
