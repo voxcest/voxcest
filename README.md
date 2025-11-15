@@ -5,7 +5,7 @@
 
 　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　　![](https://komarev.com/ghpvc/?username=1xdoee&color=334116&style=plastic&label=cuties)
 
-　　　　 ​　　　　　　　　　　 ​　　　　　　 ​　　　　vox fictionkin,, doubles iwec
+　　　　 ​　　　　　　　　　　 ​　　　　　　 ​　　　　vox fictionkin,, doubles dni or iwec /gen please
 
 
 　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@EXR-P) - [strawpage](https://1xdoee.straw.page/) - [atabook](https://1xdoe.atabook.org/) - [pt info](https://rentry.co/suicide_parade)
