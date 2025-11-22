@@ -14,4 +14,4 @@ ${\textsf{\color{#9EC3CE} my alt accounts.. @veeswife @guitarapple @algebralian 
 
 
 
-　　　　　　　　　![x](https://files.catbox.moe/4drxbl.png)
+　　　　　　　　　ic @\623_hzbn , @\nonsuger0z , @\xxx00_8 on twt
