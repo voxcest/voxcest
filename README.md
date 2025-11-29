@@ -5,7 +5,8 @@
 
 　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　　![](https://komarev.com/ghpvc/?username=voxcest&color=9EC3CE&style=plastic&label=cuties)
 
-${\textsf{\color{#9EC3CE} vox fictionkin + irl,, doubles dni or iwec /gen I HIDE+BLOCK DOUBLES FREELY}}$
+${\textsf{\color{#9EC3CE} vox fictionkin + irl,, doubles dni or iwec /gen I HIDE + BLOCK DOUBLES FREELY}}$
+${\textsf{\color{#9EC3CE} radiostatic genuinely makes me so uncomfortable. if your entire profile is themed around it im gonna hide + block you. if you just enjoy the ship and isnt the whole theme of your profiles then feel free to int!}}$
 
 　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@voxcest) - [strawpage](https://1xdoee.straw.page/) - [atabook](https://voxcest.atabook.org/) - [pt info](https://rentry.co/suicide_parade)
 
