@@ -6,7 +6,7 @@
 　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　　![](https://komarev.com/ghpvc/?username=voxcest&color=9EC3CE&style=plastic&label=VoxTekEmployees)
 
 ${\textsf{\color{#9EC3CE} im a heavy vox fictionkin + irl,, doubles iwec. I HIDE + BLOCK DOUBLES FREELY}}$
-${\textsf{\color{#9EC3CE} radiostatic genuinely makes me uncomfortable,, so please int with caution unless your my friend or i already interacted with you}}$
+${\textsf{\color{#9EC3CE} radiostatic genuinely makes me uncomfortable,, so please int with caution unless youre my friend or i already interacted with you}}$
 ${\textsf{\color{#9EC3CE} but if you just enjoy the ship and its not the whole theme of your profile then feel free to talk to me!}}$
 ${\textsf{\color{#9EC3CE} i absolutely love staticmoth and voxcest!!! and any mirrorship/selfcest ships in general!!!}}$
 
