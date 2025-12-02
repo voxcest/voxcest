@@ -5,9 +5,10 @@
 
 　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　　![](https://komarev.com/ghpvc/?username=voxcest&color=9EC3CE&style=plastic&label=VoxTekEmployees)
 
-${\textsf{\color{#9EC3CE} im a heavy vox fictionkin + irl,, doubles dni or iwec /gen I HIDE + BLOCK DOUBLES FREELY}}$
+${\textsf{\color{#9EC3CE} im a heavy vox fictionkin + irl,, doubles iwec. I HIDE + BLOCK DOUBLES FREELY}}$
 ${\textsf{\color{#9EC3CE} radiostatic genuinely makes me so uncomfortable. if your entire profile is themed around it im gonna hide + block you.}}$
 ${\textsf{\color{#9EC3CE} if you just enjoy the ship and its not the whole theme of your profiles then feel free to talk to me!}}$
+${\textsf{\color{#9EC3CE} i absolutely love staticmoth and voxcest!!! and any mirrorship/selfcest ships in general!!!}}$
 
 　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@voxcest) - [strawpage](https://1xdoee.straw.page/) - [atabook](https://voxcest.atabook.org/) - [pt info](https://rentry.co/suicide_parade)
 
