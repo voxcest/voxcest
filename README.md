@@ -13,8 +13,6 @@ ${\textsf{\color{#9EC3CE} i absolutely love staticmoth and voxcest!!! and any se
 　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@voxcest) - [strawpage](https://1xdoee.straw.page/) - [atabook](https://voxcest.atabook.org/) - [pt info](https://rentry.co/suicide_parade)
 
      
-${\textsf{\color{#9EC3CE} my alt accounts.. @veeswife @guitarapple @algebralian @errormare @twothousandsevenhundredsixtythree}}$
-
 
 
 　　　　　　　　　ic @\623_hzbn , @\nonsuger0z , @\xxx00_8 on twt
