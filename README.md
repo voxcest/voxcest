@@ -28,10 +28,6 @@ ${\textsf{\color{#9EC3CE} i absolutely love staticmoth and voxcest!!! and any se
 ,
          　　　　　　　　　　　　　　         　　　　　　　　![x](https://64.media.tumblr.com/53063c2d6039ffe68f14ebdd9ce0ca9f/523959bc663126ff-48/s75x75_c1/a0e05746d32932796f4780ddbda3dc6752a2bc92.gifv) ![x](https://64.media.tumblr.com/245e338178fa78b1e67ab42546c23176/523959bc663126ff-ff/s100x200/cb9a5fcf2f714709eb4e5e1de46f7bf00eb6fe69.gifv) ![x](https://64.media.tumblr.com/ffdf159a3f7b955c8838cc46ce629be7/523959bc663126ff-aa/s100x200/c63b3a69b7cfa367dbf5f88809a81ba92421f3de.gifv)
 
-stupid vox line blehhhhh
-                       ![x](https://files.catbox.moe/tmgd6y.png)
-
-
 
 ![x](https://64.media.tumblr.com/0aff2b22c613178eb6c9ebedf5f83c3d/4020b3c444b01348-ae/s2048x3072/859375a5a5a2f7b7233aaadaad499e4c38cf0ddb.pnj)
 
@@ -43,3 +39,11 @@ well, you see, voxcest is a selfcest ship! selfcest can be described as "Self-ce
 
 
 ![x](https://64.media.tumblr.com/c8ff27be058f67df0d03ab814bf107d7/4020b3c444b01348-bf/s2048x3072/8161d03a6159822cd3363916a7ff8de9ad82a0b8.pnj)
+
+
+
+why were there 2 vox lines this year what
+
+
+![x](https://files.catbox.moe/tmgd6y.png) ![x](https://files.catbox.moe/zyn0ri.png)![x](https://files.catbox.moe/ib5xji.png)
+
