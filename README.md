@@ -5,10 +5,9 @@
 
 　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　　![](https://komarev.com/ghpvc/?username=voxcest&color=9EC3CE&style=plastic&label=VoxTekEmployees)
 
-${\textsf{\color{#9EC3CE} im a heavy vox fictionkin + irl,, doubles iwec. I HIDE + BLOCK DOUBLES FREELY}}$
-${\textsf{\color{#9EC3CE} radiostatic genuinely makes me uncomfortable,, so please int with caution unless youre my friend or i already interacted with you}}$
-${\textsf{\color{#9EC3CE} but if you just enjoy the ship and its not the whole theme of your profile then feel free to talk to me!}}$
-${\textsf{\color{#9EC3CE} i absolutely love staticmoth and voxcest!!! and any selfcest ships in general!!!}}$
+${\textsf{\color{#9EC3CE} im a heavy vox fictionkin. doubles dni/iwec. I HIDE + BLOCK DOUBLES FREELY}}$
+${\textsf{\color{#9EC3CE} radiostatic genuinely makes me uncomfortable. int with caution unless youre my friend}}$
+
 
 　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@voxcest) - [strawpage](https://1xdoee.straw.page/) - [atabook](https://voxcest.atabook.org/) - [pt info](https://rentry.co/suicide_parade)
 
@@ -33,16 +32,16 @@ ${\textsf{\color{#9EC3CE} i absolutely love staticmoth and voxcest!!! and any se
 
 
 
-now you may be asking... "BUT BELPHEGOR!!!!!! WHATS VOXCEST ???????"
+Q ; "whats voxcest?"
 
-well, you see, voxcest is a selfcest ship! selfcest can be described as "Self-cest is a shipping trope where a character is shipped with an alternate version of themselves. It can be a fandom invention or a canon concept." in my case, i ship canon vox with his pilot or past self !! or just canon x canon !! if you want to know more about selfcest as a whole, you can watch [ColeyDoesThings's video](https://www.youtube.com/watch?v=n00XZNIMyUU&t=30s) on it !
+A ; voxcest is a selfcest ship. described as "a shipping trope where a character is shipped with an alternate version of themselves. It can be a fandom invention or a canon concept." in my case, i ship canon vox with his pilot or past self, or just canon x canon. if you want to know more about selfcest as a whole, you can watch [ColeyDoesThings's video](https://www.youtube.com/watch?v=n00XZNIMyUU&t=30s) on it
 
 
 ![x](https://64.media.tumblr.com/c8ff27be058f67df0d03ab814bf107d7/4020b3c444b01348-bf/s2048x3072/8161d03a6159822cd3363916a7ff8de9ad82a0b8.pnj)
 
 
 
-why were there 2 vox lines this year what
+why were there 2 vox lines this year what. staticmoth c*h if u see me hi
 
 
 ![x](https://files.catbox.moe/tmgd6y.png) ![x](https://files.catbox.moe/zyn0ri.png)![x](https://files.catbox.moe/ib5xji.png)
