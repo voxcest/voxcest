@@ -5,7 +5,7 @@
 
 　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　　![](https://komarev.com/ghpvc/?username=voxcest&color=9EC3CE&style=plastic&label=VoxTekEmployees)
 
-${\textsf{\color{#9EC3CE} im a heavy vox fictionkin. doubles dni/iwec. I HIDE + BLOCK DOUBLES FREELY}}$
+${\textsf{\color{#9EC3CE} im a heavy vox fictionkin. doubles and vox selfshippers/yumes dni/iwec. I HIDE + BLOCK DOUBLES FREELY}}$
 ${\textsf{\color{#9EC3CE} DO NOT COPY OR TAKE INSPO FROM MY SKINS OR PROFILES ANYWHERE UNLESS YOURE MY FRIEND ITS ANNOYING AS HELL}}$
 ${\textsf{\color{#9EC3CE} c*h is always ok, encouraged even. you dont gotta ask. even when im with friends}}$
 ${\textsf{\color{#9EC3CE} radiostatic genuinely makes me uncomfortable. int with caution unless youre my friend. its a darkship, its abuser x victim as vox made alastor}}$
