@@ -9,8 +9,8 @@ ${\textsf{\color{#9EC3CE} im a heavy vox fictionkin. doubles and vox selfshipper
 ${\textsf{\color{#9EC3CE} DO NOT COPY OR TAKE INSPO FROM MY SKINS OR PROFILES ANYWHERE UNLESS YOURE MY FRIEND ITS ANNOYING AS HELL}}$
 ${\textsf{\color{#9EC3CE} c*h is always ok, encouraged even. you dont gotta ask. even when im with friends}}$
 ${\textsf{\color{#9EC3CE} radiostatic genuinely makes me uncomfortable. int with caution unless youre my friend. its a darkship, its abuser x victim as vox made alastor}}$
-${\textsf{\color{#9EC3CE}  watch him have sex with val against his will. thats sexual assault. im immediately gonna assume you're a darkshipper if you ship them (this DOES}}$
-${\textsf{\color{#9EC3CE}  count radiosilence). idgaf. all of you are weird and disgusting. and if u genuinely argue that its not, then block me bc you're fucking weird🥹🥹✌}}$
+${\textsf{\color{#9EC3CE}  watch him have sex with val against his will. thats sexual assault. im immediately gonna assume you're a darkshipper if you ship them (this}}$
+${\textsf{\color{#9EC3CE}  counts radiosilence). idgaf. all of you are weird and disgusting. and if u genuinely argue that its not, then block me bc you're fucking weird🥹🥹✌}}$
 
 
 　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@voxcest) - [strawpage](https://1xdoee.straw.page/) - [atabook](https://voxcest.atabook.org/) - [pt info](https://rentry.co/suicide_parade)
