@@ -18,7 +18,7 @@ ${\textsf{\color{#9EC3CE}  counts radiosilence). idgaf. all of you are weird and
      
 
 
-　　　　　　　　　ic @\623_hzbn , @\nonsuger0z , @\xxx00_8 on twt
+
 
 
 　　　　　　　　　　　　　　![x](https://64.media.tumblr.com/646fd1ac6399884367a81550dc76e83a/523959bc663126ff-de/s540x810/ebec44e56b188806bb408164e1bad05e2f2375f9.gifv)
@@ -32,6 +32,10 @@ ${\textsf{\color{#9EC3CE}  counts radiosilence). idgaf. all of you are weird and
          　　　　　　　　　　　　　　         　　　　　　　　![x](https://64.media.tumblr.com/53063c2d6039ffe68f14ebdd9ce0ca9f/523959bc663126ff-48/s75x75_c1/a0e05746d32932796f4780ddbda3dc6752a2bc92.gifv) ![x](https://64.media.tumblr.com/245e338178fa78b1e67ab42546c23176/523959bc663126ff-ff/s100x200/cb9a5fcf2f714709eb4e5e1de46f7bf00eb6fe69.gifv) ![x](https://64.media.tumblr.com/ffdf159a3f7b955c8838cc46ce629be7/523959bc663126ff-aa/s100x200/c63b3a69b7cfa367dbf5f88809a81ba92421f3de.gifv)
 
 　　　　　　　　　![x](https://files.catbox.moe/gg06px.png)
+
+
+ic @\623_hzbn , @\nonsuger0z , @\xxx00_8 on twt
+                  
 
 ![x](https://64.media.tumblr.com/0aff2b22c613178eb6c9ebedf5f83c3d/4020b3c444b01348-ae/s2048x3072/859375a5a5a2f7b7233aaadaad499e4c38cf0ddb.pnj)
 
