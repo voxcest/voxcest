@@ -1,5 +1,5 @@
 the way everyone started to like voxcest after i came👀👀👀👀👀👀
-dont use the holy name of voxcest to justify radiostatic not being a darkship @voxcestyaoi youre weird as hell for saying "if a victim themselves told me they viewed the scene as sexual assault, i could see eye-to-eye with them, because i feel as if it's all opinion-based" wheter something is sa or not is NOT opinion based. weirdo
+dont use the holy name of voxcest to justify radiostatic not being a darkship @voxcestyaoi youre weird as hell for saying "if a victim themselves told me they viewed the scene as sexual assault, i could see eye-to-eye with them, because i feel as if it's all opinion-based" whether something is sa or not is NOT opinion based. weirdo
 
 
 
