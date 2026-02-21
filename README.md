@@ -1,38 +1,28 @@
-the way everyone started to like voxcest after i came👀👀👀👀👀👀
-dont use the holy name of voxcest to justify radiostatic not being a darkship @voxcestyaoi youre weird as hell for saying "if a victim themselves told me they viewed the scene as sexual assault, i could see eye-to-eye with them, because i feel as if it's all opinion-based" whether something is sa or not is NOT opinion based. weirdo
+![x](https://64.media.tumblr.com/ebf8a4dffd2555a35903366a34714463/58ff75876e74537d-67/s1280x1920/110d95e6a9e8c728fe451032726f2ab2fc337981.pnj)
+
+　　　　 ​　　　　　　　　　　 ​　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=voxcest&color=A7CED7&style=plastic&label=໒ྀི✙ )
+
+　　　　 ​　　　　　　　　　　 ​　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=A7CED7&width=435&lines=sign+my+atabook!;or+my+strawpage...;i+luv+all+my+friends!)](https://git.io/typing-svg)
+
+　　　　 ​　　　　　　　　　　 ​　　　　　　[![x](https://64.media.tumblr.com/b3d3e11987ece291280eab0246df7dcf/c4ea0f20f3712685-df/s100x200/18bca98349a392b372c7940870ec512996d30035.pnj)](https://pronouns.cc/@voxcest) - [![x](https://64.media.tumblr.com/bd4962d7290544cbbacf25deb2a5d91e/c4ea0f20f3712685-c1/s100x200/534d96699aa788ad5e5a45b0b0addeabbaa8bf79.pnj)](https://voxcest.atabook.org/) - [![x](https://64.media.tumblr.com/02201c828e3441159fd8ef2fae9f73c4/c4ea0f20f3712685-3c/s100x200/696b3f31acfe24f880abd655927427ff5f5bb4ec.pnj)](https://rentry.co/suicide_parade) - [![x](https://64.media.tumblr.com/34bab1ecb5025f4d94d155a5a9995837/c4ea0f20f3712685-59/s100x200/d6ac2922a5aa7e484dfa5d26aa42ea7046456b05.pnj)](https://1xdoee.straw.page/)
 
 
 
-　　　　 ​　　　　 ​　　　　　　　　　　 ​　　　　　　　 ​　　　![](https://komarev.com/ghpvc/?username=voxcest&color=9EC3CE&style=plastic&label=VoxTekEmployees)
-
-${\textsf{\color{#9EC3CE} im a heavy vox fictionkin. doubles and vox selfshippers/yumes iwc if u make it ur entire personality. I HIDE + BLOCK FREELY}}$
-${\textsf{\color{#9EC3CE} DO NOT COPY OR TAKE INSPO FROM MY SKINS OR PROFILES ANYWHERE UNLESS YOURE MY FRIEND ITS ANNOYING AS HELL}}$
-${\textsf{\color{#9EC3CE} c*h is always ok, encouraged even. you dont gotta ask. even when im with friends.idgaf about ships, and dont take 2 characters siting next to}}$
-${\textsf{\color{#9EC3CE} eachother as a ship.}}$
-${\textsf{\color{#9EC3CE} radiostatic genuinely makes me uncomfortable. int with caution unless youre my friend.}}$
-please read my [rentry](https://rentry.co/tropfan) before you interact with me
+![x](https://64.media.tumblr.com/3d5021abc632a4a38d18e09e68ba6777/58ff75876e74537d-68/s2048x3072/062c6043a259e165417e0a4bba36607785ebfdda.pnj)
 
 
-　　　　 ​　　　　　　　　　　 ​　　　　　　[pronouns.cc](https://pronouns.cc/@voxcest) - [strawpage](https://1xdoee.straw.page/) - [atabook](https://voxcest.atabook.org/) - [pt info](https://rentry.co/suicide_parade)
-
-     
+![x](https://64.media.tumblr.com/8a5e1366a9bdb84ed86b913b25db8017/58ff75876e74537d-22/s2048x3072/548700e349911eea45feb49c5594360296d6b292.pnj)
 
 
+![x](https://64.media.tumblr.com/1c3fcff69d52e25cef29a9ef098d82ea/58ff75876e74537d-bc/s2048x3072/a58f3ea341acd6871b9a0011a01201075382c13a.pnj)
 
 
-
-　　　　　　　　　　　　　　![x](https://64.media.tumblr.com/646fd1ac6399884367a81550dc76e83a/523959bc663126ff-de/s540x810/ebec44e56b188806bb408164e1bad05e2f2375f9.gifv)
-         
-　　　　　　　　　　　　　　![x](https://64.media.tumblr.com/90f8131c1a10b704d2b3efeea64b3e7f/523959bc663126ff-fc/s250x400/d9001a49e83541f6bfb473f1ae810f3b99189f74.gifv) ![x](https://64.media.tumblr.com/98aa8227b794e802829b50cc56c3147a/523959bc663126ff-e6/s250x400/9e7a552a69f32a3c561d1cd51c71c18b8880354c.pnj)
-
-　　　　　　　　　　![x](https://64.media.tumblr.com/ca15183f2259eed4bcf289b7f94f47f3/523959bc663126ff-54/s250x400/f79d04f0cc3e5cce06ef461715ff847d782e636d.pnj) ![x](https://64.media.tumblr.com/1959b68a3a533d71f3cc03fc766e2521/523959bc663126ff-5e/s250x400/e90554ded73fcf3f975995f134eb6f073b9b3108.pnj) ![x](https://64.media.tumblr.com/cbeeb8ee40b1e7fbffcf56237613caf2/523959bc663126ff-8e/s250x400/504bdd5dacbf6302777ea4bd4cfd56afcba752a9.pnj) ![x](https://64.media.tumblr.com/ddbf0f443b0fca60941e55756f61e0cb/523959bc663126ff-05/s250x400/cad2bf0ad2219fb609e87d8c7c52f831b0831414.pnj) ![x](https://64.media.tumblr.com/1b5945d50c172d895a70d835a2406ddd/523959bc663126ff-7b/s250x400/c821b91b0141664797de05f2f9c59260cb22e52a.pnj) ![x](https://64.media.tumblr.com/a75f136bee19acfe8d06147ccd17da91/523959bc663126ff-09/s250x400/f51d6256f353d4047648b2639cb2b507d9c7df9c.pnj)
-,
-         　　　　　　　　　　　　　　![x](https://64.media.tumblr.com/3a27cf28cdff26fc6175cb82a88fb12e/73cd021b838e4f83-8c/s100x200/c54ce0d430c18a1432a4e7f0d46e8c8c25578d32.pnj) ![x](https://64.media.tumblr.com/78833c3398fae72b59061857cbd7fa32/33fe7252c223ef62-92/s100x200/4e4afc72a7fbd8fabf175e9678e2aebc528058ff.gifv)  ![x](https://64.media.tumblr.com/f338a7c738401f0b40a53f2efa231ec9/33fe7252c223ef62-df/s100x200/e37ec9534ac674711fd3f6cd84fff8a05c420b4f.pnj) ![x](https://64.media.tumblr.com/8a1c5edfe5e64b37462c344999779713/33fe7252c223ef62-2f/s100x200/c590003ff7d0266c8218f6d63348d7eb1d950574.pnj) ![x](https://64.media.tumblr.com/d56b10d807e5c9e679140c7b4de40b71/73cd021b838e4f83-2b/s100x200/5ddcc98379d5ea9aef024b165907d76d1d03f162.pnj)
-,
-         　　　　　　　　　　　　　　         　　　　　　　　![x](https://64.media.tumblr.com/53063c2d6039ffe68f14ebdd9ce0ca9f/523959bc663126ff-48/s75x75_c1/a0e05746d32932796f4780ddbda3dc6752a2bc92.gifv) ![x](https://64.media.tumblr.com/245e338178fa78b1e67ab42546c23176/523959bc663126ff-ff/s100x200/cb9a5fcf2f714709eb4e5e1de46f7bf00eb6fe69.gifv) ![x](https://64.media.tumblr.com/ffdf159a3f7b955c8838cc46ce629be7/523959bc663126ff-aa/s100x200/c63b3a69b7cfa367dbf5f88809a81ba92421f3de.gifv)
+![x](https://64.media.tumblr.com/98968637322c48961ec7e13a42681220/58ff75876e74537d-aa/s2048x3072/8a41cd2195043f22c051d5ad4f646a36fc80a45e.pnj)
 
 
-![x](https://64.media.tumblr.com/0aff2b22c613178eb6c9ebedf5f83c3d/4020b3c444b01348-ae/s2048x3072/859375a5a5a2f7b7233aaadaad499e4c38cf0ddb.pnj)
+![x](https://64.media.tumblr.com/a2dce80621cdf3d22e4461eb98025973/58ff75876e74537d-b2/s2048x3072/3ba36049e03cd9031936c0242933b4256aa9eb31.pnj)
+
+
 
 
 
@@ -41,7 +31,7 @@ Q ; "whats voxcest?"
 A ; voxcest is a selfcest ship. described as "a shipping trope where a character is shipped with an alternate version of themselves. It can be a fandom invention or a canon concept." in my case, i ship canon vox with his pilot or past self, or just canon x canon. if you want to know more about selfcest as a whole, you can watch [ColeyDoesThings's video](https://www.youtube.com/watch?v=n00XZNIMyUU&t=30s) on it
 
 
-![x](https://64.media.tumblr.com/c8ff27be058f67df0d03ab814bf107d7/4020b3c444b01348-bf/s2048x3072/8161d03a6159822cd3363916a7ff8de9ad82a0b8.pnj)
+![x](https://64.media.tumblr.com/7aeb9ea79c89e0bc75f6e73cf551964c/8176a53768d81cc1-e7/s2048x3072/c0a4dbbcd0d0216833aa21960ffa56681ccb1cab.pnj)
 
 
 
