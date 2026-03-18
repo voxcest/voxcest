@@ -6,9 +6,9 @@ ${\textsf{\color{#A7CED7} DNI IF U SHIP RADIOSTATIC/SILENCE, MURDERMEDIA OR VOX 
 
 　　　　 ​　　　　　　　　　　 ​　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=voxcest&color=A7CED7&style=plastic&label=໒ྀི✙ )
 
-　　　　 ​　　　　　　　　　　 ​　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=A7CED7&width=435&lines=sign+my+atabook!;or+my+strawpage...;i+luv+all+my+friends!)](https://git.io/typing-svg)
+　　　　 ​　　　　　　　　　　 ​　　　　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=A7CED7&width=435&lines=sign+my+atabook!;or+my+strawpage...;i+luv+all+my+friends!)](https://git.io/typing-svg)
 
-　　　　 ​　　　　　　　　　　 ​　　　　　　[![x](https://64.media.tumblr.com/b3d3e11987ece291280eab0246df7dcf/c4ea0f20f3712685-df/s100x200/18bca98349a392b372c7940870ec512996d30035.pnj)](https://pronouns.cc/@voxcest) - [![x](https://64.media.tumblr.com/bd4962d7290544cbbacf25deb2a5d91e/c4ea0f20f3712685-c1/s100x200/534d96699aa788ad5e5a45b0b0addeabbaa8bf79.pnj)](https://voxcest.atabook.org/) - [![x](https://64.media.tumblr.com/02201c828e3441159fd8ef2fae9f73c4/c4ea0f20f3712685-3c/s100x200/696b3f31acfe24f880abd655927427ff5f5bb4ec.pnj)](https://rentry.co/suicide_parade) - [![x](https://64.media.tumblr.com/34bab1ecb5025f4d94d155a5a9995837/c4ea0f20f3712685-59/s100x200/d6ac2922a5aa7e484dfa5d26aa42ea7046456b05.pnj)](https://1xdoee.straw.page/)
+　　　　 ​　　　　　　　　　　 ​[prns.cc](https://pronouns.cc/@voxcest) - [atabook](https://voxcest.atabook.org/) - [pony town info](https://rentry.co/suicide_parade) - [strawpage (outdated)](https://1xdoee.straw.page/)
 
 
 
