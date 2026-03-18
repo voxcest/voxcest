@@ -6,7 +6,9 @@ ${\textsf{\color{#A7CED7} DNI IF U SHIP RADIOSTATIC/SILENCE, MURDERMEDIA OR VOX 
 
 　　　　 ​　　　　　　　　　　 ​　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=voxcest&color=A7CED7&style=plastic&label=໒ྀི✙ )
 
-　　　　 ​　　　　　　　　　　 ​　　　　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=A7CED7&width=435&lines=sign+my+atabook!;or+my+strawpage...;i+luv+all+my+friends!)](https://git.io/typing-svg)
+     
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=A7CED7&width=435&lines=sign+my+atabook!;or+my+strawpage...;i+luv+all+my+friends!)](https://git.io/typing-svg)
+
 
 　　　　 ​　　　　　　　　　　 ​[prns.cc](https://pronouns.cc/@voxcest) - [atabook](https://voxcest.atabook.org/) - [pony town info](https://rentry.co/suicide_parade) - [strawpage (outdated)](https://1xdoee.straw.page/)
 
