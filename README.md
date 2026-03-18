@@ -1,7 +1,7 @@
 　　　　　　　　　　　　　　　　　　　　　　　[![Typing SVG](https://readme-typing-svg.demolab.com?font=Quintessential&pause=1000&color=A7CED7&width=435&lines=sign+my+atabook!;or+my+strawpage...;i+luv+all+my+friends!)](https://git.io/typing-svg)
 
 
-DO NOT COPY OR TAKE INSPO FROM MY SKINS OR PROFILES ANYWHERE
+　　　　　　　　　　　DO NOT COPY OR TAKE INSPO FROM MY SKINS OR PROFILES ANYWHERE
 
 [![x](https://64.media.tumblr.com/ebf8a4dffd2555a35903366a34714463/58ff75876e74537d-67/s1280x1920/110d95e6a9e8c728fe451032726f2ab2fc337981.pnj)](https://rentry.co/voxxyval)
 
