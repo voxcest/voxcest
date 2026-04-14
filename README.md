@@ -9,7 +9,7 @@
 
 
 
-　　　　 ​　　　　　　　　　　 ​[prns.cc](https://pronouns.cc/@voxcest) - [atabook](https://voxcest.atabook.org/) - [pony town info](https://rentry.co/suicide_parade) - [strawpage (outdated)](https://1xdoee.straw.page/)
+　　　　 ​　　　　　　[prns.cc](https://pronouns.cc/@voxcest) - [atabook](https://voxcest.atabook.org/) - [pony town info](https://rentry.co/suicide_parade) - [strawpage (REMADE!! SIGN NOWWW!!!)](https://cloverslove.straw.page/)
 
 
 
